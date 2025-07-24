@@ -7,7 +7,7 @@
 # 
 
 # Vì sao cần sổ tiết kiệm khi xin visa?
-
+Xem thêm: https://dichvutaichinh.vn/dich-vu-lam-so-tiet-kiem-xin-visa.html
 # Các quốc gia phát triển như Mỹ, Úc, Canada, Hàn Quốc, Nhật Bản hay châu Âu luôn yêu cầu đương đơn chứng minh khả năng tài chính để đảm bảo họ đủ điều kiện chi trả chi phí trong thời gian lưu trú. Sổ tiết kiệm chính là bằng chứng rõ ràng, minh bạch và dễ xác minh nhất.
 
 # 
